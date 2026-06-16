@@ -1,1 +1,0 @@
-# SAko-sunosetumei
